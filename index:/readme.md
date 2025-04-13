@@ -5,3 +5,4 @@
 - https://bestmetaltrade.com/product/copper-millberry-scrap-99-99-percent/
 - https://bestmetaltrade.com/product/copper-wire-scrap/
 - https://www.made-in-china.com/products-search/hot-china-products/Millberry_Copper_Scrap_Price.html
+- https://www.linkedin.com/pulse/millberry-copper-scrap-ultimate-guide-buyers-suppliers-thescrapzo-ode6c
