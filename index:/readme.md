@@ -1,0 +1,7 @@
+- https://matasas.com/product/millberry-copper-wire-scrap-99-9-purity/
+- https://awftraders.com/copper-millberry-wire
+- https://www.westmetalcompany.com/post/buy-99-99-millberry-copper-wire-scrap-high-quality-copper-scrap
+- https://tradexglobalusa.com/inventory/product/copper-wire-scrap-millberry-99-99-tradex-global-inc
+- https://bestmetaltrade.com/product/copper-millberry-scrap-99-99-percent/
+- https://bestmetaltrade.com/product/copper-wire-scrap/
+- https://www.made-in-china.com/products-search/hot-china-products/Millberry_Copper_Scrap_Price.html
